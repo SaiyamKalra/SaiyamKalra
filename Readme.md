@@ -12,4 +12,4 @@ I'm always eager to learn more and take on new challenges in the world of softwa
 
 ### 📫 How to reach me:
 - Email: kalrasaiyam2006@gmail.com
-- LinkedIn: [Naman Goyal](www.linkedin.com/in/saiyam-kalra-25a53432a)
+- LinkedIn: [Saiyam Kalra](www.linkedin.com/in/saiyam-kalra-25a53432a)
